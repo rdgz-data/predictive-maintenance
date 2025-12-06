@@ -1,4 +1,3 @@
-Aquí tienes **la versión en español y en inglés**, perfectamente formateadas.
 
 ---
 
